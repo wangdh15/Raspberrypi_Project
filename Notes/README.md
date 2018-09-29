@@ -1,0 +1,1 @@
+# Notes done by myself
